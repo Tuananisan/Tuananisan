@@ -31,3 +31,4 @@ This Privacy Policy may be updated from time to time for any reason. We will not
 7. Contact Us
 If you have any questions regarding privacy while using the Game/Application, or have questions about our practices, please contact us via email at: 
 tuanasinan2k2@hotmail.com
+
